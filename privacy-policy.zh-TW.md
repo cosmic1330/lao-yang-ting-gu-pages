@@ -9,7 +9,7 @@ permalink: /privacy/
 
 生效日期：2026 年 10 月 4 日
 
-「老楊聽股」（以下稱「本 App」）由 lao-yang 提供。本政策說明本 App 如何處理資料。若有疑問，請聯絡 yangjuitools001@gmail.com。
+「老楊聽股」（以下稱「本 App」）由 lao-yang 提供。本政策說明本 App 如何處理資料。若有疑問，請聯絡 laoyangtinggu@gmail.com 。
 
 ## 我們處理的資料
 

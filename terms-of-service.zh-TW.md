@@ -9,7 +9,7 @@ permalink: /terms/
 
 生效日期：2026 年 10 月 3 日
 
-使用「老楊聽股」（以下稱「本 App」）即表示同意本條款。本 App 由 lao-yang 提供；聯絡信箱為 yangjuitools001@gmail.com。
+使用「老楊聽股」（以下稱「本 App」）即表示同意本條款。本 App 由 lao-yang 提供；聯絡信箱為 laoyangtinggu@gmail.com 。
 
 ## 服務與帳號
 
